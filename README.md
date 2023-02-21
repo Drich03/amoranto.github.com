@@ -3,8 +3,6 @@
 
 - 📚 I’m currently Studying on **ASIATECH COLLEGE**
 
-- 💻 I’m currently learning **About Programming**
-
 - ✉️ How to reach me **drich_amoranto@yahoo.com**
 
 - 📄 Know about my experiences [https://drive.google.com/file/d/1i-rTFS2Vl6FS_UGceeDBN0WmE8XVHtxj/view?usp=sharing](https://drive.google.com/file/d/1i-rTFS2Vl6FS_UGceeDBN0WmE8XVHtxj/view?usp=sharing)
